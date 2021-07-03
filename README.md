@@ -1,4 +1,4 @@
-### Hi there 👋
+### FOR YOU 👋
 
 - 😄 Hello....! I'm Hirusha Prishmitha
 - 🔭 I’m currently not working 
